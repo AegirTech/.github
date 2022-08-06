@@ -4,7 +4,7 @@
 
 明日方舟自动化云控技术推进者，加入我们，即刻返航。
 
-前往 [伊比利亚之眼](https://aegirtech.com/)
+前往 [伊比利亚之眼](https://ark.aegirtech.com/)
 
 ---
 
